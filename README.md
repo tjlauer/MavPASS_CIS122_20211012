@@ -16,4 +16,4 @@ Today we decided to relax a bit after the exam, so we did a logic problem!
 
 As always, if you have any questions please send me an email at thomas.lauer@mnsu.edu.
 
-I will see you on Tuesday!
+I will see you on Thursday!
